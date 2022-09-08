@@ -23,6 +23,11 @@ https://chat.whatsapp.com/FGoRR0JJGauHhO39hyQSJ1
 
 ══════════════
 
+> Click WA logo to Join Group 👇
+<br>
 
+  [![join](https://github.com/Alien-alfa/PublicBot/blob/main/wlogo.svg.png)](https://chat.whatsapp.com/JTMQnUKHpEa930Q4ag9hQu)
+
+  <div align="center">
 
 𝙿𝙾𝚆𝙴𝚁𝙳 𝚋𝚢  ❯❯❯  𝙷𝙸𝚂𝙻 𝙰𝙳𝙼𝙸𝙽 𝙲𝚁𝙴𝚆™of 2022 ✯⃟    ❮❮❮
