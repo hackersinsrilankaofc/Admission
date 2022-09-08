@@ -1,5 +1,8 @@
 ## Hackers In Sri Lanka Official Invitation 
 
+<img src="https://telegra.ph/file/3af3080786366ca8b66a3.jpg" alt="nz" width="350"/>
+</p>
+
 By joining us you can learn about 
             - Hacking, 
             - Networking,
